@@ -1,2 +1,2 @@
 # Kendrick Lee
-About Me! (and what CodeToCreate does)
+Hi! I'm Kendrick, the Executive Officer and a Co-Founder at CodeToCreate.
